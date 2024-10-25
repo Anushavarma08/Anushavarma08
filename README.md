@@ -12,7 +12,7 @@
 
 ## Connect with Me
 - LinkedIn www.linkedin.com/in/anusharanim
-- Email    anushavarma08@gmail.com
+- Email    anusha1.rani.m@gmail.com
 
 ## Fun Facts
 - I am a book nerd and I love solving puzzles.
